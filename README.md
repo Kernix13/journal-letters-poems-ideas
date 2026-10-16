@@ -2,6 +2,8 @@
 
 I wanted to read through my journals and decided to write everything out in markdown files.
 
+NOTE: use a pen for your journal! I used pencil and the writing is starting to fade, or rub off, and it's hard to read.
+
 ## Files
 
 - `private.md` has journal entries which I did not want to share online.

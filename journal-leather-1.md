@@ -17,9 +17,7 @@ I will most likely use bullet points unless I wrote paragraphs, same for the oth
 
 Skip for now
 
-## Start journal, notes, ideas
-
-### page 4
+## page 4
 
 Pledge exp.
 
@@ -36,7 +34,7 @@ Interesting images, phrases, words that I found: '...of...'
 
 I'm drunk...listening to Bob Dylan...
 
-### page 5
+## page 5
 
 - puddles in the water
 - puddles
@@ -52,7 +50,7 @@ I'm drunk...listening to Bob Dylan...
 - backwards
 - lack freedoms & therefore understanding of themselves
 
-### page 6-8
+## page 6-8
 
 Restart 9/9/99
 
@@ -121,7 +119,7 @@ the way of thought <br>
 or is it <br>
 the wrong way
 
-### page 9
+## page 9
 
 Trial poems 3-21-00
 
@@ -144,12 +142,12 @@ My ears concentrate on the elixir <br>
 I smile & feel good <br>
 thank you to the wind, to the leaves
 
-### page 10
+## page 10
 
 - you knock me over
 - I can't be uprooted
 
-### page 11
+## page 11
 
 Sunday 2/26/03
 
@@ -159,7 +157,7 @@ I'm at the gym right now, riding a bike - will be here ~ 1 hr then to the store,
 
 ...I'll try a poem on the other side...
 
-### page 12-13
+## page 12-13
 
 <ins>Fitness Craze</ins>
 
@@ -191,7 +189,7 @@ The smells vary depending on <br>
 who you are next to and whether <br>
 they have a shirtless sleeve.
 
-### page 14-17
+## page 14-17
 
 9-21-03
 
@@ -226,7 +224,7 @@ Assateague, 9/26
 - Life of the Marsh trail
   - "Distinct Zonation..."
 
-### page 18
+## page 18
 
 12-20-03
 
@@ -244,7 +242,7 @@ I can't stay in the corporate world. How do I make a living shooting? Contact al
 4. Figure out what markets, and hence what type of photography I will be doing
 5. Start looking at the above photes (#4) and start building a portfolio
 
-### page 19-20
+## page 19-20
 
 1-6-04
 
@@ -260,7 +258,7 @@ I mentioned I would enter everyone into the Manayunk Writers Group Yahoo group. 
 
 Oh yeah, and Steph said the "we'll teach you" without looking at me. I'm really upset at all of that! I was hoping I could get Melissa to come out but she's still (can't read the final word). We'll see what happens at the next meeting.
 
-### page 21-24
+## page 21-24
 
 3-21-04
 
@@ -276,7 +274,7 @@ But I think Jasmine digs me. Then there's 16 heavy set chicks who want to email 
 
 - next paragraph in `private.md`
 
-### page 26 Start of Dream Journal
+## page 26 Start of Dream Journal
 
 I do not think I will write out the dreams I wrote in t he journal, but I will later when I'm done with the paisley journal.
 
