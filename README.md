@@ -13,3 +13,20 @@ I wanted to read through my journals and decided to write everything out in mark
 - `journal-paisely.md` - my first journal
 
 NOTE: my local repo is `journal` but my GitHub repo is `journal-letters-poems-ideas`
+
+I need a good way to make notes in the files that are not confused with the original text. How about this:
+
+```
+a generic text block
+for notes
+maybe with emojis
+```
+
+Or would a diff block be beter:
+
+```diff
+- for negative comments
+* for positive
+
+then general?
+```

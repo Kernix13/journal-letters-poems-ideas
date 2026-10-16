@@ -152,3 +152,43 @@ thank you to the wind, to the leaves
 ### page 11
 
 Sunday 2/26/03
+
+- first 2 lines and final paragraph in private.md
+
+I'm at the gym right now, riding a bike - will be here ~ 1 hr then to the store, gas up the car & then to Philly to drop off a copy of my pay stub to Priscilla. I hope she wants me to move in (what a mistake that was) because it's a great location & a cool house, plus I could use some new friends. There is so much going on in Philly that I'm sure to meet a lot of people.
+
+...I'll try a poem on the other side...
+
+### page 12-13
+
+<ins>Fitness Craze</ins>
+
+They come to lift, run or bike <br>
+they come because the way they look <br>
+is not the look they want.
+
+The music and sweat combine to <br>
+create an ambiance unlike any <br>
+other in our society.
+
+Lots of people together yet also <br>
+apart, thinking of their own <br>
+plans, their own goals.
+
+Will they get there? Most won't <br>
+but they come anyway hoping <br>
+that they will get there.
+
+Denial and hope, truth shunned <br>
+by action and positive thoughts <br>
+but don't tell them, they won't hear.
+
+The sounds are varied: music, <br>
+metal on metal, grunts and heavy <br>
+breathing, the sounds of the cardio machines
+
+The smells vary depending on <br>
+who you are next to and whether <br>
+they have a shirtless sleeve.
+
+### page 14-17
