@@ -26,7 +26,7 @@ Or would a diff block be beter:
 
 ```diff
 - for negative comments
-* for positive
++ for positive
 
 then general?
 ```
