@@ -143,3 +143,163 @@ Well, time is constantly flowing by and still changes seem to happen slowly.
 ## Page 21
 
 Thursday 8/6 - skip, in `private.md`
+
+## Page 22
+
+Arrest record - not chronological but as I remember
+
+- McCroary's - the big heist (shoplifting toys with my friends)
+- Up by Skate Odyssey with Paul - Darby jail - have no memory for what
+- Ocean County, NJ - stole a bike, Grandmom Oberst turned me in
+- Folcroft, Shallcross Ave - the half-built house - loitering
+- Folcroft, Old Maid's Deli - stole Pretzels, PAt Sweeney ratted me out - right before going on a drive to the shore with Dad and with Allen C. (huh?)
+
+## Page 23, 28-29
+
+Sat 11-24-01
+
+Went to the Wissahickon this morning to go hiking with the AMC. No women, mostly dweebs, decided to blow it off.
+
+Went to the Art Museum last night for a jazz show. They have them every Friday night. I think I'll start going on a regular basis - 5:00-8:45. I left around 8:00, got there after 6:00. I took a wrong turn and drove through a part of Philly I've never been in, for an hour, low on gas. Finally saw Liberty One and headed that direction. Made my way to City Hall then went towards D.U. to get there.
+
+I was hoping there's be some single women around. I went dressed to the hilt - looking good with some Hugo Boss on. There was one but college aged chich with her boy friend who checked me out. Nice breasts - under a red sweater with the strap of her pocket book running between them - nice accentuation. I'm going to keep going. Maybe I'll run into her when she's by herself - oops - skip 4 pages ahead - pages 28-29
+
+They have food, music, talks, and movies on Wednesday nights at the museum. I'm going to start going to those also. Next Wednesday is Spanish night - Flamenco guitaer - 1st time I've ever heard that. Should be great. I may as well buy a $50 membership being that admission is now $10. It will pay for itself in 6 trips. I should have bought one last night.
+
+I have to get out more if I want to meet chicks. Since it looks like I've stopped my everynight drinking, I have more confidence and self-respect, and most importantly, self-control.
+
+Next good Wednesday ight at the art museum is Dec 19th - classical seasonal music from the 15th-16th ccenturies. I'll hit next Friday also. What to do on Saturday nights? It'ss get expensive I suppose but it's the only way to meet people. I have to get my music ready so that I can play at the Grape Street before the new year. That should also be a great way to meet chicks.
+
+There is still the constant problem of my inability to speak in social settings. I don't know why I freeze up except for the feeling I get for not knowing how to join in. That's it - I don't know how to chime in, to tell stories of my own. Why am I so boring? I'd be willing to take a chance if I could only think of something interesting to say. It seems that people like busting on other people as a conversation subject, stories about anything, especially if they're anecdotal, and of course jokes.
+
+I have to try to exhibit enthusiam. Laugh at everything - to do that, find humor in anything. I don't know. I can't see any woman wanting someone who is so boring in social situations. I have to figure out how to relax and become entertaining. Entertaining:
+
+- jokes
+- stories
+- observations
+- interactions with other people
+
+I must become more lively. Start saying whatever comes to mind, even if it's only slightly funny!
+
+## Page 24
+
+12-15-96
+
+It's been a long time since I checked in, Looks like since 8/93 - over 3 yrs ago. Catchup: bad times with a bad person, ok, during the fall, bad falling during the winter (?)
+
+10-5-97
+
+Just came from Media food fest. Good time but I was by myself almost the whole time. Beautiful women in Jocylyns. I feel deeper need for a girlfriend. I need one bad. I feel so alone anymore. I just don't seem to have the confidence to approach a beautiful woman. I'm going to start playing music, studying poetry, and reading books on how to talk.
+
+## Page 24-27
+
+2-1-00
+
+Haven't been playing music but the other 2 - yeah - still no girlfriend. The biggest problem has been the drinking - every night for the past 7 years - started big time that one summer. This is my biggest problem. I have a great job, I'm getting in shape, I must control the alcohol. I was a constant 16 beers a night weekday drinker, I now have it down to 8-10 - isn't that impressive, yeah right - will continue to cut back - I must. Goal: get to 4 per night then go a few nights without one - I can do that, I am OK. I will be in control.
+
+Thoughts of violence towards my [skip-I-now-who] continue but are way less frequent than 6 months ago. Reason: the night on his deck where his friends ripped me apart because of rumors they heard (J---). I wanted him to give them hell for effing with me in his house - his staged response: "I don't feel sorry for people who create their own problems". Later I missed it but he said "You have to feel sorry for Carl" (Carl cheated on his wife with an 18 you on his swim team). After JJ killed that girl with his car while wasted he said "You have to feel sorry for JJ. That mother f---er - I endured the greatest cuts of my life and he refused to approach "potential clients" yet he feels sorry for Carl & JJ! And that little bitch J--- - I always hear the words that Amy told me she said: "And you tell Jim, I'll show him!" All because I said "Why did you say that about Amy?" Judy H. has hated me since that question also. Oh, and let's not forget the constant holiday statements by "him" and R---- about my being gay - they think that just because I don't have a girlfriend - you f---ing jerk-off.
+
+Constantly telling me that my thoughts, ideas, opinions, etc are not right: "Here's how you should do it..." and "No, this is the way it is". As if that f---ing a-hole is superior to everyone else because his job involves manipulation.
+
+And the silence when I said Fredo never really talked to me about his father - jerk off - why the silence? To make me feel like shit that I didn't talk to him about it? He was older t han me and totally outgoing, friendly, and funny, and Camaro told me he didn't like to talk about it. Thanks you fucking jerkoff. Always has to be right, never admit you're wrong, always stick your 2 cents in whether it's asked for or not. You conceited asshole. I hope you get what you deserve!
+
+I've decided to be done with him. I won't hang out, stop over, or call him up. I want him out of my life. It seems he chose his friends instead. I'm not gay jefk off - I've been drinking every night for 7 years, being drunk before 9 o'clock, and with 1 DUI under my belt. What do I do? Hop in a car and drive somewhere only t o slur my words and knock drinks over when I get there? I wonder what kind of woman that would attract.
+
+So because you didn't back me up 7 years ago, and lied getting out of that, and because you're not bqacking me up but implying or agreeing or saying "I don't know, it sure seems that way" - for not backing me up but instead letting [3-people's-names-here] thinking that - FUCK YOU - get the fuck out of my life!
+
+## page 30
+
+11-06-02
+
+I quit smoking today, I quit this past Saturday. Decision was made Sat night, 3 cigs Sunday, 1 Mon night, last one Tues night - cig free today, but not "bowl" free, That's been increasing in use in direct proportion to the cig stoppage. I was jonesing a little tonight but I made it. We'll see what happens.
+
+I have a lot more but I'm going to read instead. I'll pickup tomorrow night. It's 10 and I'm tired. "Down by the river" just ended on XPN.
+
+12-15-02
+
+Eagles are in - I'm totally getting off on the possibility of writing for a living.
+
+01-03-03
+
+Wondering about a lot of things
+
+- VWR free - Pep Boys!
+- the writing group Clm & Dla
+  - ? - I will
+  - I will
+  - I will
+
+## Page 31-33
+
+1-26-03
+
+Not sure what the last 3 lines mean - Bucs just won the Super Bowl - validstes the Eagles???
+
+Listening to The Pretenders after getting into a discussion about Chryssy Hynde with MAry from Erin's Pub....
+
+Pep Boys - I really, really hope it works out. I don't know what I will do if it doesn't. I'm at the end of what I will tolerate from "the corporate world" - what a bullshit environment
+
+I pray that it will be somewhat different, kinder, realer - a collection of people who see things different than the rest of the robots... but I doubt it. It is I who must accept... the miscellaneous conglomeration of human misfits... just don't know.
+
+I will do what I believe in. I hope others will follow. If they don't, then I will be on my own. That's why I hope others will follow or belive the same... then I won't be alone - but if not, then I will.
+
+I find it so hard to relate to other people... on a meaningful level.
+
+Ailene called me last night at ~ 1:00 AM, We talked until 3 AM
+
+Pep Boys - I hope the people I work with like me. I hope they ask me to lunch. If they do, it will be a big change from VWR - a change that I crave for.
+
+I realize that $ is great but if you do not enjoy work everyday, than what's the point. I want to enjoy work with my co-workers - which will - lead me to - eventually - ?
+
+Page 34 - 01-27-03 - empty page
+
+```
+NOTE: 10-17-26
+
+Boy was I wrong about Pep Boys - hell on earth.
+
+But these days I have to think that I'm the problem and that my life has been
+nothing but a bunch of bad choices and a lack of direction
+```
+
+## Page 35-37
+
+12-9-03 - last entry in this journal
+
+I am flipping from t he one journal to this one. Figure I should fill at least one of them up - I'll do this one since it's the 1st I've ever had.
+
+I don't think I'll write long. I have a poem I have to rewrite for my writing group: "RAin Dance on Main Street" - my observations while sitting in Bucks Co Coffee the night the hurricane came through. Plus, I worked out fpr 1 hr 43 mins tonight - 1 hr swim, 30 bike, 14 run.
+
+Checked my enail accounts - whew! I had one email in my Yahoo account - Bulk. Subject: "Some one is researching your background". Some kind of auto-mailed email that tells you someone is checking you out. Needless to say, it freaked me out!
+Then I realized it must have been Adrienne - the woman from Fairmount whose drivers license & credit card I found and returned. I got really pissed off. She told me she would buy me a beeer. I dropped off the cards to friends of hers so we haven't met. Plus she's a lesbian, so...
+
+I guess I can understand - single woman in the city, but it still pissed me off. Then I checked my phone and she left a voicemail saying she was busy this past weekend.
+
+Work - Glen & Leo are budds and I'm pretty sure Leo is now his snitch. I think Glen wants me out - jerk off. Leo has stolen my ideas and passed them off as his own, talked trash about me, now he may become my boss - young little asshole. And he has a guru? What hipocrasy! Well I hope I can make it out. Talked with Dana today about photography - she's the pro freelance shooter for Pep Boys. She painted a bleak picture, but I feel I can beat the odds with intense motivation and a ferocious work pace. I should wake up tomorrow and shoot that bridge on Kelly Drie with the snow on the backgroun hills reflected in the Schuykill, but I'm tired now and freaked and pissed. Plus, I don;t know if it will work because of no foreground subject - we'll see.
+
+I have to get out of the corporate world. I can't understand why people would do that kind of shit and why other people stay, unless they have a family to support.
+
+Have to ask Jeanine out!
+
+## Page 38 - gratitude list examples
+
+The rest of the journal is filled with daily gratitude lists - here is day 1 on 4-30-18
+
+- I am grateful for my knees and feet feeling better
+- I am grateful for being motivated to meditate
+
+Getting back to living life positively!
+
+5-1-18
+
+- I am grateful to have all the $ I need
+- I am grateful for the nice weather
+- I am grateful for a light work day and the extra time to work on myself
+- I am grateful to be alive
+
+Last gratitude list entry - 7-15-21
+
+- I am grateful that I have a place to live with Luna
+- I am grateful that God and my Holy Guardian Angel are healing me
+
+THE END
