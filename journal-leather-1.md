@@ -276,10 +276,10 @@ But I think Jasmine digs me. Then there's 16 heavy set chicks who want to email 
 
 ## page 26 Start of Dream Journal
 
-I do not think I will write out the dreams I wrote in t he journal, but I will later when I'm done with the paisley journal.
-
 For a lot of nights I wrote:
 
-> I do not remember anything from my dreams last night.
+> _"I do not remember anything from my dreams last night."_
 
 I think I learned to do that as a way of telling my mind to have me remember.
+
+I created `dream-journal.md` for all my dream entries
