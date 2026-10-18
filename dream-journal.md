@@ -149,7 +149,7 @@ Astro:
 
 12:54 5/6 into 5/7 - is it 2020?
 
-- Sulimay face removed - CVS truck & something else - I was in car - back was dentist where I went in or something - ken them ok - teamwork?
+- Sulimay face removed - CVS truck & something else - I was in car - back was dentist where I went in or something - ken them ok - teamwork? I'm not even bothering with the astro because this is too vague
 
 ## dream entry 18
 
@@ -169,31 +169,52 @@ Astro:
 
 2:42 AM 12/12 --> 12/13/20
 
+- hiking - wilderness - with someone else - saw other people - 1st black bear or something else - didn't harm me but came up close - then polar bear came up really close and left me alone - I was frightened but remained still - then got in a car with cody (who is Cody?) and drove off but drove off with what I thought was a polar bear outside but it was his new young dog - kept telling him to stop, "your dog" but he wouldn't stop - don't know why I thought it was Cody, maybe cecause the dog looked like Ella (Ella?) or because she gets me mad - but it was in the passsenger's seat and paid me no attention - why did I ask the passenger - who was driving?
+
+Astro:
+
+- Sum, Moon & Mercury in Sag, Venus in Sco, Mars in Ari, Jupiter, Saturn & Pluto in Cap, Uranus in Tau, Neptune in Pis, AC in Lib, MH in Leo
+
 ## dream entry 20
 
 March 2021 - April 15th I think - no time listed
 
+- While walking Sadie, I was watching the construction machinery/trucks through the fence at Baldwin PArk - excavators, dump trucks, etc - they were digging but I could not see the ground where they were digging, hidden from me
+- I had a dream where my surroundings were chaotic, cataclysm maybe, and I was trying to save (my) books - there was someone with me - I was putting books in a wheel barrow to take somewhere, maybe a cave, and there were large trucks moving earth in the distance
+- on my futon I have many cushions and pillows - in the center to the left where I sit I have some esoteric books: Kaballistic tarot, kybalion, secret teachings of all ages,beginners guide to alchemy, kaballah magic - and very small, last and "buried", the last days of socrates - also I have my 3-ringed binder with my natal chart, skills list, remembrances, etc - I keep one flat throw pillow covering them - so they are hidden/buried behind pillows - as a matter of fact, the ones closest to the back of the futon mattress have fallen behind a large bed pillow than the ones to the front (sit on?) - what was my SCM telling me? I need to finish reading one of those books? Was it tiny Plato's book buried beneath everything? That I should read one of the other ones?
+
 ## dream entry 21
 
-Thur 11/18/21 - Fri ~ 4 AM
+remembering a dream from a year earlier on 7-20-23
+
+- F--- - I never wrote down the most significant dream - it's 7-30-23 and it could have been a year or more ago - I was in an unfamilar house - it was sunny - lots os windows where the front door was but the wall turned in an "L", actually "J", a J on the other side of the J was another door - I heard what seemed like a knock - went to the 2nd door - looked through window and did not see anyone - I opened door a crack and as I did that the screen door opened an 1" or more and stayed there
+- I immediately felt fear and wanted to shut the door but the door flew open and I was knocked to the floor, paralyzed, I could not move - I looked but I could not see anyone or anything - I believe I opened the door and let in a demon
+- on the far wall was a man and child sitting on a couch - was the child me? How do I get rid of the demon? Did I do something in my life that "invited" a negative/dark force into me or my life?
+
+```
+NOTES:
+
+- the "J" means the shape of the room - imagine your back against a wall
+- in front of you is a hallway leading to the door on the left,
+but before the hall is the bottom of the J of the room where there was at least one window
+- the man and child on the couch would be if you turned your head 90-degrees to your right
+```
 
 ## dream entry 22
 
-remembering a dream from a year earlier on 7/20-23
+11-12-25 - no idea --> 1:30
+
+- Spice carrying a pan of hot turkey gravy - needs my help - he puts it on the ground - I go over ready to do a 3-count but he just picks it up by one side/handle and the hot gravy splashes all over his face - he walks away - then he is someone else, a stranger, talking to other people with a scalded face, I'm there too, I think I just leave
+
+Skip Astro for now because the time is too vague
 
 ## dream entry 23
 
-10-20-25 ~ 3:15 Berea, KY
+11-?-25 4:20 AM - no day???
+
+- I'm a quarterback but a quarterback or center is giving me help - I can't throw because no one is open - finally I throw and I can't properly grip the ball and I over throw - "That;s ok, better to throw long" - then I'm throwing wet/moist dog kibble then I'm about to throw and a guy is open - then I wake up
 
 ## dream entry 24
-
-11-12-25 - no idea --> 1:30
-
-## dream entry 25
-
-11-?-25 4:20 AM
-
-## dream entry 26
 
 2-23-26 12:08 AM Monday
 
@@ -206,19 +227,19 @@ THOUGHTS:
 - there was that time as a child when I stepped on a teenager's cigarette when bare foot, it hurt, told dad, he freaked out and yelled at them - maybe something about that?
 ```
 
-## dream entry 27
+## dream entry 25
 
 10-9-26 ~ 5:17 AM - that time is late, maybe remembering it from earlier???
 
 - I remember going upstairs somewhere - right before that I had a cat and 3 dogs - I needed to ffind them a place - I went into a room where there was a bed - I kept them there then I walked out and there was no door but some kind of "blocking" door for the room but it was open to the left and it seemed like it was a large field just inside to the left of the blocking door and outside the room where the animals were - then I walked down a long hallway and I saw the field again - then I realized I had to pee but the bathroom was far away - then I woke up to pee
 
-## dream entry 28
+## dream entry 26
 
 10-13-26 - no time listed - think this was when I woke up so going from memory
 
 - many cars stopped for a school bus but a car flew by just missing a kid - maybe a red car - I chased on other side of street after crossing the median strip - then I was on the median strip then my car when up a large bump/hi;; and my car was air born for a little bit - I came down hard then I woke up - when did I recall the accident I caused when delivering pizza for Secane Pizza - I ended up seeing an ambulance on that rainy night at rush hour - was someone seriously hurt - did they die as a result or have issues with their body afterwards from injuries - did I recall this last night after my dream - there was also the nextdoor.com post about asking if the driver was known who flew past a school bus with flashing lights - that was a week ago or so
 
-## dream entry 29
+## dream entry 27
 
 on short piece of paper, no date or time
 
