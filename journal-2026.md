@@ -2,6 +2,8 @@
 
 I started writing in a small notebook again after watching the Boff of the Swamp vidoes. I don't have much but here is what I have so far.
 
+<br>
+
 ## June 2026
 
 ### June 4th
@@ -84,6 +86,8 @@ Woke up okay. It rained really hard, the pool was closed and I can't find my gog
 
 I hate having a roommate, especially a lazy one that pays none of the bills. I'm considering moving to TN. Got a lot done on my capstone.
 
+<br>
+
 ## July 2026
 
 ### July 3rd
@@ -124,6 +128,8 @@ VISUAL: WALKING DOG DURING AUTUM WITH A BREEZE!
 
 That's what I want
 
+<br>
+
 ## August 2026
 
 ### August 16th
@@ -137,6 +143,8 @@ Took a crate, tote, bag of clothes, the pet screen and level to my storage - and
 ### August 29th
 
 Feeling better this morning but now I may be out of apartment options because replies to my Turpin Drive post say to stay away. I guess the landlord owns that FB group because Kayla contacted me about it
+
+<br>
 
 ## September 2026
 
@@ -158,6 +166,8 @@ It as my Dad's birthday and Buddy's adoption day yesterday so I thought of them 
 
 My uncle Joe passed away in the night. He was in his 90's.
 
+<br>
+
 ## October 2026
 
 ### October 18th
@@ -170,4 +180,35 @@ I have slacked off writing out goals and affirmations, doing visualizations, EFT
 
 I will be writing all my journal entries here now and they should be longer. I am so tired of writing out all my journals and letters that it has burned me out. And I need to get back to Brad Traversy's coing on Coding with AI.
 
+### October 18th part 2
+
+I stopped writing out my goals and affirmations. I originally was writing in one notebook where I had a lot of them. Below is the 1st date from the new notebook I was using. This is an example of the things I was doing but have stopped since it seems the avenues for these things to happen are gone. I follow that with 3 identity statements.
+
+3-17-26
+
+1. **Goal**: I live on 2 acres of wooded rural land with enough cleared and leveled land for a cabin, parking, 2 porches, a front and back yard, a garden, a wood shed and a tool shed.
+   - **Affirmation**: I am grateful for my beautiful rural land where I live simply and word remotely - it's mine and I love it.
+2. **Goal**: I am building a fully functional cabin on my land with new people in my life.
+   - **Affirmation**: I am so happy and grateful that I have a cabin home on my own 2 acres of rural land.
+3. **Goal**: I earn over $1000 per week through remote web design and development work and I secured it all within 6 months.
+   - **Affirmation**: I am grateful to be growing my income doing work I enjoy from anywhere I choose.
+4. **Goal**: I am creating a network of people who support my plans for land, a cabin, and a simple freelance lifestyle.
+   - **Affirmation**: I attract people who support my vision for a homesteading life - the right connections come naturally to me.
+5. **Goal**: I am building a small meaningful circle of like-minded friends who value self-development, intentional living, and inner growth.
+   - **Affirmation**: The right people are drawn to the energy I radiate. The connections I seek are seeking me too,
+6. **Goal**: I have a new dog in my life - a shy but friendly female Am Staff who loves me as much as I love her. She also gets along with my cat Luna.
+   - **Affirmation**: I am deeply connected to my new dog who feels safe with me and is part of my family along with Luna.
+
+<ins>The person I want to be</ins>:
+
+Someone whi is awakening and manifesting great things in my life like land, a cabin, and conscious friends, and who has an income as a web designer and developer working remotely from my cabin that sits on land I own, and the income from my work covers all my expenses with money left over for savings and for things I enjoy.
+
+<ins>Today I show up as the person</ins>: Who discovers and heals my unhealed wonds.
+
+<ins>The person I want to be</ins>: I am rich, I am healthy, I am happy.
+
+8-13-26, starting on 8/9 I switched to 5 goals, about a 1-bedroom apartment - then I stopped everything.
+
 ### October ?
+
+<br>
