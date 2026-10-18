@@ -6,13 +6,15 @@ NOTE: use a pen for your journal! I used pencil and the writing is starting to f
 
 ## Files
 
-- `private.md` has journal entries which I did not want to share online.
-- `manilla1.md` a `manilla2.md` refers to 2 small manilla envelopes I have where I have loose letters and other docs.
-  - `manilla2.md` has the text from letters from my mother
-- `ripped-pages.md` has some journal pages that I ripped out of notebooks and are in a sketch pad cover
+- `dream-journal.md` has dreams I wrote down when I woke up from them
+- `journal-2026.md` is my new journal until the end of the year
 - `journal-leather-1.md` - my firstt leather bound journal
 - `journal-leather-2.md` - my second leather bound journal
 - `journal-paisely.md` - my first journal
+- `manilla1.md` a `manilla2.md` refers to 2 small manilla envelopes I have where I have loose letters and other docs.
+  - `manilla2.md` has the text from letters from my mother
+- `private.md` has journal entries which I did not want to share online.
+- `ripped-pages.md` has some journal pages that I ripped out of notebooks and are in a sketch pad cover
 
 NOTE: my local repo is `journal` but my GitHub repo is `journal-letters-poems-ideas`
 
