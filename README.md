@@ -32,3 +32,10 @@ Or would a diff block be beter:
 
 then general?
 ```
+
+## Other things
+
+Consider adding:
+
+- notes-ideas1.xls
+- "Notes & Ideas.docx"

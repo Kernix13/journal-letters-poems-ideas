@@ -199,7 +199,7 @@ It's 10 before 9:00 in the morning on Sunday. I'm down at Bucks County Coffee on
 
 I'll be working on my poen "Stormy Night on Main Street", but (I use "but" too often) I have to write another one today.
 
-I'm down to 173lbs. I need to get under 165 so I can lose the fat in my face. I'll be hitting the gymn for an hour in the pool, 1/2 hour on the bike, and whatever I can do on the treadmill - 15-20 minutes. I'm giving myself 2 more months to get to where I want to be. I've been at 173lbs for 3-4 months or more.
+I'm down to 173lbs. I need to get under 165 so I can lose the fat in my face. I'll be hitting the gym for an hour in the pool, 1/2 hour on the bike, and whatever I can do on the treadmill - 15-20 minutes. I'm giving myself 2 more months to get to where I want to be. I've been at 173lbs for 3-4 months or more.
 
 I am supposed to meet Melissa @ 11:45. She is the second person to contact me about my "writer's club" notice I put up. Hopefully, we can be the start of a group here in Manayunk. We will talk about our options, but I want to push for a local group.
 

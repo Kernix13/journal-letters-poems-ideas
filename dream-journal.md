@@ -11,13 +11,13 @@ Dreams can be:
 
 > I do not remember anything from my dreams last night
 
-I'm shocked I have very little dreams so far with no time. I remember writing down the time for many dreams. The time is vital to do an astrology chart analysis.
+I'm shocked I have very little dreams so far with no time. I remember writing down the time for many dreams. The time is vital to do an astrology chart analysis. I know I have more somewhere. I think they are in other notebooks which I have to dig out.
 
 ## dream entry 1
 
 10/4/18 no time listed
 
-- wood farmer - chich who is cut - frathouse - threw up - old cigarette box that was antique - on a touch football field - was I walking before - knew a player - it was muddy
+- wood farmer - chick who is cut - frathouse - threw up - old cigarette box that was antique - on a touch football field - was I walking before - knew a player - it was muddy
 - I wrote on the cigarette box, a date I think - the owner of the box noticed I had it (cigarettes looked like playing cards deck) - asked that I put it back but were really nice - didn't notice that I wrote a date on it - wanted me to put it back in a special spot - "Fire" something where he kept valuables
 
 ```
@@ -44,7 +44,7 @@ THOUGHTS:
 
 11/27/18 - not ime listed
 
-- Sandy Murphy but it wasn't her - she had to do something - like open up a lab but I visualized it was a smimming pool like at Drexel - before that I was in a house - asian couple - then I was on the street - a woman was running with her kid who kept running - I tried to shoot at a neighbor's house but realized I can't just walk into it to do it - they were cleaning dishes when I got back
+- Sandy M. but it wasn't her - she had to do something - like open up a lab but I visualized it was a smimming pool like at Drexel - before that I was in a house - asian couple - then I was on the street - a woman was running with her kid who kept running - I tried to shoot at a neighbor's house but realized I can't just walk into it to do it - they were cleaning dishes when I got back
 
 ## dream entry 5
 
@@ -70,7 +70,7 @@ something right or am I missing something "sweet"?
 
 3/4/19 - no time listed
 
-- in yard - other people in neighbors yard - 3 women - I'm eventually naked sitting on steps embarrassed I got caught - small r ag covering me - weird guy comes into yard - can't get out - breaks fence partly - then democrats flat guy, just a nose, eye, ear and mouth on a rhumba - he deserves rights, deserves life
+- in yard - other people in neighbors yard - 3 women - I'm eventually naked sitting on steps embarrassed I got caught - small rag covering me - weird guy comes into yard - can't get out - breaks fence partly - then democrats flat guy, just a nose, eye, ear and mouth on a rhumba - he deserves rights, deserves life
 
 ```
 THOUGHTS:
@@ -178,6 +178,7 @@ it's 5:05 - I don't quite remember - sound of a plane crash - puff of air up cur
 THOUGHTS:
 
 - 2 crashes - hard to read, is it a word then ashes?
+- there was that time as a child when I stepped on a teenager's cigarette when bare foot, it hurt, told dad, he freaked out and yelled at them - maybe something about that?
 ```
 
 ## dream entry 30
@@ -194,7 +195,11 @@ THOUGHTS:
 
 ## dream entry 31
 
-on short piece of paper - Rob Garrity
+on short piece of paper, no date or time
+
+- Rob Garrity - bald, divorced, $21K to fix his teeth - he almost died - Sue told him something when he almost died
+- dogs in old house (Frat?) - small dogs, came from upstairs - I'm...? (sleeping?)... there overnight after the party
+- then bar again (?) owner came down - drizzly rain inside roof/tarp, a woman sitting there ...? ...to ...? ...rain ...then original bar again, many dogs come into the bathroom from upstairs - frat? many? people? sleeping? in the house?
 
 .......................................................................................
 
