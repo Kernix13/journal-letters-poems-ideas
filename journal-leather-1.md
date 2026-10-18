@@ -280,6 +280,10 @@ For a lot of nights I wrote:
 
 > _"I do not remember anything from my dreams last night."_
 
-I think I learned to do that as a way of telling my mind to have me remember.
+I think I learned to do that as a way of telling my mind to have me remember. I created `dream-journal.md` for all my dream entries
 
-I created `dream-journal.md` for all my dream entries
+## Page 49
+
+12/2/19 into 12/3
+
+- not dreaming (maybe) - thinking of reputation as the basis of evil - not "for the love of money..." but "for the need of reputaion..." - discussing it with friends - saw the letter N surrounded by other letters: N, NS, SN - maybe NS, the S somehow wrapping around the N

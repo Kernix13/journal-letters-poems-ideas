@@ -80,13 +80,13 @@ THOUGHTS:
 
 ## dream entry 8
 
-4/11/19
+4/11/19 - no time listed
 
 - on a friends step with a coffeee machine and I spilled the water - no, it overflowed because something was not right - made a mess
 
 ## dream entry 9
 
-10/25/19
+10/25/19 - no time listed
 
 - tiger for sale - after storm disaster or something - coming into my place by the back door, locked it - didn't want any part of it - 2nd floor fire escape type door - town almost deserted - storm or something - I know a few women staying behind like me - guy still trying to sell it - it's been up for a [some-word] 5 days or times - blond hair guy - tiger was still on a couch near a window - plexiglass but still on leash, was in my place - worried about Luna - talking to 3-4 women - was in different house, 1st floor I think
 
@@ -94,81 +94,106 @@ THOUGHTS:
 
 11/14/19 - no time listed
 
-- dave laird - prescriptions - plants - 1 person was arguing with pharmacist who was giving man hard time (or [some-word] someone I was with) - I started cursing - saw pictures of the poisonous plant - woman from gas station - buying news papers - lobelia plant
+- Dave L. - prescriptions - plants - 1 person was arguing with pharmacist who was giving man hard time (or [some-word] someone I was with) - I started cursing - saw pictures of the poisonous plant - woman from gas station - buying news papers - lobelia plant
 
 ## dream entry 11
 
-11/20/19
+11/20/19 - no time listed
+
+- pasta party? preteen baseball - I was there, shirtless cut end - NOT SURE: "tan is test" - or - "tan stick", not sure - lots of pasta boxes in a rack, orderly, kept seeing the same kid, wtisting of pasta - then I'm big standing behind of with other kids - can't see the kitchen area, standing and eating - 1 strand sticks to cabinet and I use black fork to pull it off to eat, dark spots on cabinet that show through the strand making parts of it dark
 
 ## dream entry 12
 
-12/2/19 into 12/3
+12-19-19 4:45-5:15, call it 5:00 - first time available
+
+- C major - Y nationals - A Harmonic, melodic minor in bold, H2, then realize mistakes [copying?] to paragraph - plane, go Wed or Thurs, thet [some word] getting to airport, Wed night or Thurs AM (like today)
+
+Astro
+
+- Sun & Mercury in Sag, Mon in Vir, MH in Vir, Sco rising, MArs in Sco, Saturn, Pluto, Venus & Jupiter in Cap, Uranus in Tau, Neptune in Pis,
 
 ## dream entry 13
 
-12-19-19 4:45-5:15
+5:50 no date
+
+- swimming at ocean but really on a float or innertube - sections of beach separated by rock jetties - floated close to rocks on [unknown-short-word] was what looked like birds under water - then went to next section - realized I was watching someone kid but couldn't find them, freaking out, section after jetty section, no kids then looking in oceanside "hallways" for him, then in my room - there he was but it was a dog, looked like a small dog, chichihua, then a woman is trying to give a treat to a black pit on its stomach, white beelly, words exchanged but can't remember, maybe "can't give treats"
+
+```
+black pit with white belly sounds like my dog Buddy
+```
 
 ## dream entry 14
 
-5:50 no date
+2/20 --> 2/21 Thur-Fri
+
+- old murder investigation - [unknown-word] Lindberg ... who went missing, was it murder... I said "Bullshit, false, trick"
 
 ## dream entry 15
 
-2/20 --> 2/21 Thur-Fri
+3-11-20 --> 3/12 4:07 AM
+
+- my car not being able to stop - dark, raining - Bishop Hill maybe & Baltimore Pike - went thru light, many spins, more than once, but not - pulled into gas station, punk kids blocking - then it was a bike and I got a flat - kids still in way - eventually woman comes out and yells at them - I needed help with a ride - thought dad but also no not him
+- car not stopping, spinning in circle, dark rain/wet, went spinning through light, a few other cars - gas station - punk kids/black, blocking me - now a bike, notice flat tire, woman gas employee yells at kids, need a ride, not bad
+
+Astro:
+
+- Sun in Sco, Moon in Gem, AC, Mercury & Venus in Lib, Mars in Ari, Jupiter, Saturn, Pluto in Cap, Uranus in Tau, Neptune in Pis, MH in Can
 
 ## dream entry 16
 
-3-11-20 --> 3/12 4:07 AM
+6:24 - no date
+
+- outside gym on Fairmount, saw my bike chain cut & bike gone - locked it up few minutes before (not enough)
 
 ## dream entry 17
 
-6:24 - no date
+12:54 5/6 into 5/7 - is it 2020?
+
+- Sulimay face removed - CVS truck & something else - I was in car - back was dentist where I went in or something - ken them ok - teamwork?
 
 ## dream entry 18
 
-~ 4:30 no date
+12:29 - 5/6 into 5/7 - is this 2020?
+
+- bat guy - saw him at park 19th - other people with me, spread out - 1 walk/run away look back - forgot my dog - he nails it with a swing on back - run back, little dog is staggering like Stella or other one - staggering, not sure if she made it - he walked away
+
+rewrite:
+
+- "Bat guy" - I was sitting at 19th & HAmilton park - I either walked or ran away - I looked back forgetting I was walking a little dog - looked like Stella or Sadie or Mooshu - he hit the dog on its back - little dog was staggering when I ran back - staggering, not sure if she made it or not - he walked away - was that Abby?
+
+Astro:
+
+- Sun, Mercury, Uranus in Tau, MH & Moon in Sco, Venus in Gem, Mars & Saturn in Aqu, AC, Jupiter & Pluto in Cap, Neptune in Pis,
 
 ## dream entry 19
 
-12:54 no date
+2:42 AM 12/12 --> 12/13/20
 
 ## dream entry 20
 
-12-29
+March 2021 - April 15th I think - no time listed
 
 ## dream entry 21
 
-12:29 AM 5/6 --> 5/7
+Thur 11/18/21 - Fri ~ 4 AM
 
 ## dream entry 22
 
-2:42 AM 12/12 --> 12/13/20
+remembering a dream from a year earlier on 7/20-23
 
 ## dream entry 23
 
-March 2021 - April 15th I think
+10-20-25 ~ 3:15 Berea, KY
 
 ## dream entry 24
 
-Thur 11/18/21 - Fri ~ 4 AM
+11-12-25 - no idea --> 1:30
 
 ## dream entry 25
 
-remembering a dream from a year earlier on 7/20-23
-
-## dream entry 26
-
-10-20-25 ~ 3:15 Berea, KY
-
-## dream entry 27
-
-11-12-25 - no idea --> 1:30
-
-## dream entry 28
-
 11-?-25 4:20 AM
 
-## dream entry 29
+## dream entry 26
 
 2-23-26 12:08 AM Monday
 
@@ -181,19 +206,19 @@ THOUGHTS:
 - there was that time as a child when I stepped on a teenager's cigarette when bare foot, it hurt, told dad, he freaked out and yelled at them - maybe something about that?
 ```
 
-## dream entry 30
+## dream entry 27
 
 10-9-26 ~ 5:17 AM - that time is late, maybe remembering it from earlier???
 
 - I remember going upstairs somewhere - right before that I had a cat and 3 dogs - I needed to ffind them a place - I went into a room where there was a bed - I kept them there then I walked out and there was no door but some kind of "blocking" door for the room but it was open to the left and it seemed like it was a large field just inside to the left of the blocking door and outside the room where the animals were - then I walked down a long hallway and I saw the field again - then I realized I had to pee but the bathroom was far away - then I woke up to pee
 
-## dream entry 31
+## dream entry 28
 
 10-13-26 - no time listed - think this was when I woke up so going from memory
 
 - many cars stopped for a school bus but a car flew by just missing a kid - maybe a red car - I chased on other side of street after crossing the median strip - then I was on the median strip then my car when up a large bump/hi;; and my car was air born for a little bit - I came down hard then I woke up - when did I recall the accident I caused when delivering pizza for Secane Pizza - I ended up seeing an ambulance on that rainy night at rush hour - was someone seriously hurt - did they die as a result or have issues with their body afterwards from injuries - did I recall this last night after my dream - there was also the nextdoor.com post about asking if the driver was known who flew past a school bus with flashing lights - that was a week ago or so
 
-## dream entry 31
+## dream entry 29
 
 on short piece of paper, no date or time
 
