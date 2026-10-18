@@ -46,7 +46,7 @@ Fri 9/8/89 11:37 AM
 
 I've been up for nearly 2 hrs - a major accomplishment. Forgot to mention last night the dream I had the night before. I heard it said we only dream in black and white, and rarely in color if at all. Well, since I heard that, I've been keeping awarw of the color of my dreams.
 
-The other night I had a dream with an explosion of color, a big bang in the form of a spectrum. The middle of the dream I was going to meet Tom Cassidy at his swim club. On the path down to the club were houses, rich houses separated by land and trees - beautiful homes.
+The other night I had a dream with an explosion of color, a big bang in the form of a spectrum. The middle of the dream I was going to meet Tom C. at his swim club. On the path down to the club were houses, rich houses separated by land and trees - beautiful homes.
 
 Where each home met the road, there were many trees on each property. These trees were all blooming with flowers and colors - some were white, some were violet, some were pink, some were yellow and orange and blue and red... So many different colors on each and every property arranged in different patterns - it was beautiful.
 
@@ -120,7 +120,7 @@ The wind hows like the sound of a 1000 voices screaming with the agony of a slow
 
 4/20/91 Sat night - 1:30 AM, tuned to Stars End on XPN
 
-- 4 pages about my love for Cath M. - in `private.md`
+- 4 pages about my love for Cathy M. - in `private.md`
 
 Thinking of death
 
@@ -150,9 +150,9 @@ Arrest record - not chronological but as I remember
 
 - McCroary's - the big heist (shoplifting toys with my friends)
 - Up by Skate Odyssey with Paul - Darby jail - have no memory for what
-- Ocean County, NJ - stole a bike, Grandmom Oberst turned me in
+- Ocean County, NJ - stole a bike, Grandmom O. turned me in, that's ok, I was a punk
 - Folcroft, Shallcross Ave - the half-built house - loitering
-- Folcroft, Old Maid's Deli - stole Pretzels, PAt Sweeney ratted me out - right before going on a drive to the shore with Dad and with Allen C. (huh?)
+- Folcroft, Old Maid's Deli - stole Pretzels, Pat S. ratted me out - right before going on a drive to the shore with Dad and with Allen C. (huh?)
 
 ## Page 23, 28-29
 
@@ -197,15 +197,15 @@ Just came from Media food fest. Good time but I was by myself almost the whole t
 
 Haven't been playing music but the other 2 - yeah - still no girlfriend. The biggest problem has been the drinking - every night for the past 7 years - started big time that one summer. This is my biggest problem. I have a great job, I'm getting in shape, I must control the alcohol. I was a constant 16 beers a night weekday drinker, I now have it down to 8-10 - isn't that impressive, yeah right - will continue to cut back - I must. Goal: get to 4 per night then go a few nights without one - I can do that, I am OK. I will be in control.
 
-Thoughts of violence towards my [skip-I-now-who] continue but are way less frequent than 6 months ago. Reason: the night on his deck where his friends ripped me apart because of rumors they heard (J---). I wanted him to give them hell for effing with me in his house - his staged response: "I don't feel sorry for people who create their own problems". Later I missed it but he said "You have to feel sorry for Carl" (Carl cheated on his wife with an 18 you on his swim team). After JJ killed that girl with his car while wasted he said "You have to feel sorry for JJ. That mother f---er - I endured the greatest cuts of my life and he refused to approach "potential clients" yet he feels sorry for Carl & JJ! And that little bitch J--- - I always hear the words that Amy told me she said: "And you tell Jim, I'll show him!" All because I said "Why did you say that about Amy?" Judy H. has hated me since that question also. Oh, and let's not forget the constant holiday statements by "him" and R---- about my being gay - they think that just because I don't have a girlfriend - you f---ing jerk-off.
+Thoughts of violence towards "_the-evil-one_" continue but are way less frequent than 6 months ago. Reason: the night on his deck where his friends ripped me apart because of rumors they heard (J---). I wanted him to give them hell for effing with me in his house - his staged response: "I don't feel sorry for people who create their own problems". Later I missed it but he said "You have to feel sorry for Carl" (Carl cheated on his wife with an 18 you on his swim team). After JJ killed that girl with his car while wasted he said "You have to feel sorry for JJ". That mother f---er - I endured the greatest cuts of my life and he refused to approach "potential clients" yet he feels sorry for Carl & JJ! And that little bitch J--- - I always hear the words that Amy told me she said: "And you tell Jim, I'll show him!" All because I said "Why did you say that about Amy?" Judy H. has hated me since that question also. Oh, and let's not forget the constant holiday statements by "him" and R---- about my being gay - they think that just because I don't have a girlfriend - you f---ing jerk-off.
 
 Constantly telling me that my thoughts, ideas, opinions, etc are not right: "Here's how you should do it..." and "No, this is the way it is". As if that f---ing a-hole is superior to everyone else because his job involves manipulation.
 
-And the silence when I said Fredo never really talked to me about his father - jerk off - why the silence? To make me feel like shit that I didn't talk to him about it? He was older t han me and totally outgoing, friendly, and funny, and Camaro told me he didn't like to talk about it. Thanks you fucking jerkoff. Always has to be right, never admit you're wrong, always stick your 2 cents in whether it's asked for or not. You conceited asshole. I hope you get what you deserve!
+And the silence when I said Fredo never really talked to me about his father - jerk off - why the silence? To make me feel like shit that I didn't talk to him about it? He was older than me and totally outgoing, friendly, and funny. Plus, Camaro told me he didn't like to talk about it. Thanks you f---ing jerkoff. Always has to be right, never admit you're wrong, always stick your 2 cents in whether it's asked for or not. You conceited asshole. I hope you get what you deserve!
 
-I've decided to be done with him. I won't hang out, stop over, or call him up. I want him out of my life. It seems he chose his friends instead. I'm not gay jefk off - I've been drinking every night for 7 years, being drunk before 9 o'clock, and with 1 DUI under my belt. What do I do? Hop in a car and drive somewhere only t o slur my words and knock drinks over when I get there? I wonder what kind of woman that would attract.
+I've decided to be done with him. I won't hang out, stop over, or call him up. I want him out of my life. It seems he chose his friends instead. I'm not gay jefk off - I've been drinking every night for 7 years, being drunk before 9 o'clock, and with 1 DUI under my belt. What do I do? Hop in a car and drive somewhere only to slur my words and knock drinks over when I get there? I wonder what kind of woman that would attract.
 
-So because you didn't back me up 7 years ago, and lied getting out of that, and because you're not bqacking me up but implying or agreeing or saying "I don't know, it sure seems that way" - for not backing me up but instead letting [3-people's-names-here] thinking that - FUCK YOU - get the fuck out of my life!
+So because you didn't back me up 7 years ago, and lied getting out of that, and because you're not backing me up but implying or agreeing or saying "I don't know, it sure seems that way" - for not backing me up but instead letting [3-people's-names-here] ...who else... thinking that - F--- YOU - get the f--- out of my life!
 
 ## page 30
 
@@ -224,10 +224,10 @@ Eagles are in - I'm totally getting off on the possibility of writing for a livi
 Wondering about a lot of things
 
 - VWR free - Pep Boys!
-- the writing group Clm & Dla
-  - ? - I will
+- the writing group Clm & Dla (?)
   - I will
   - I will
+  - I will (?)
 
 ## Page 31-33
 
@@ -256,7 +256,7 @@ Page 34 - 01-27-03 - empty page
 ```
 NOTE: 10-17-26
 
-Boy was I wrong about Pep Boys - hell on earth.
+Boy was I wrong about Pep Boys - that place was hell on earth.
 
 But these days I have to think that I'm the problem and that my life has been
 nothing but a bunch of bad choices and a lack of direction
@@ -268,7 +268,7 @@ nothing but a bunch of bad choices and a lack of direction
 
 I am flipping from t he one journal to this one. Figure I should fill at least one of them up - I'll do this one since it's the 1st I've ever had.
 
-I don't think I'll write long. I have a poem I have to rewrite for my writing group: "RAin Dance on Main Street" - my observations while sitting in Bucks Co Coffee the night the hurricane came through. Plus, I worked out fpr 1 hr 43 mins tonight - 1 hr swim, 30 bike, 14 run.
+I don't think I'll write long. I have a poem I have to rewrite for my writing group: "Rain Dance on Main Street" - my observations while sitting in Bucks Co Coffee the night the hurricane came through. Plus, I worked out fpr 1 hr 43 mins tonight - 1 hr swim, 30 bike, 14 run.
 
 Checked my enail accounts - whew! I had one email in my Yahoo account - Bulk. Subject: "Some one is researching your background". Some kind of auto-mailed email that tells you someone is checking you out. Needless to say, it freaked me out!
 Then I realized it must have been Adrienne - the woman from Fairmount whose drivers license & credit card I found and returned. I got really pissed off. She told me she would buy me a beeer. I dropped off the cards to friends of hers so we haven't met. Plus she's a lesbian, so...
@@ -301,5 +301,15 @@ Last gratitude list entry - 7-15-21
 
 - I am grateful that I have a place to live with Luna
 - I am grateful that God and my Holy Guardian Angel are healing me
+
+## Final thoughts
+
+10-18-26
+
+When it comes to the-evil-one, I have not written even 1% of my experiences, thoughts & insights. Then there is so much about my corporate jobs I never wrote about, or my 13+ years owning my dog walking & pet sitting business, and so much more.
+
+Reading some of the things I wrote really upset me. I spent many years so angry that it has taken a lot to try and let it go. And now I just brought some of it up again.
+
+I'll start a new journal when I'm done editing the files I just uploaded.
 
 THE END
