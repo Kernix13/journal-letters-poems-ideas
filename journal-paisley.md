@@ -104,7 +104,7 @@ Lisa showed up. I can't remember who I was talking to but when I saw her I lost 
 
 Other highlights of the party: Donovan & I giggin' - Jeff, Jeff, and I playing West LA Fade Awway.
 
-Sunday night: the biggest bash in DSC's history - the headcount got up to about 50 people. It was a good time all around. I'm not going to go into any details because it would take too long, so I'll be brief - Paul Elles and his young friends, Tara F. & Shannon, BEER, Mr. Connely, rock throwing, Tom and his bass, the morning with Joe Andiario, Mike M. & Mrs. Gade - UNFORGETTABLE!
+Sunday night: the biggest bash in DSC's history - the headcount got up to about 50 people. It was a good time all around. I'm not going to go into any details because it would take too long, so I'll be brief - Paul Elles and his young friends, Tara F. & Shannon, BEER, Mr. Connely, rock throwing, Tom and his bass, the morning with Joe A., Mike M. & Mrs. Gade - UNFORGETTABLE!
 
 Monday, Labor Day: general closing - saying goodbye to the girls & getting Cindi S's #
 
