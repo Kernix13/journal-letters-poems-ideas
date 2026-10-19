@@ -52,7 +52,7 @@ P.S. Enclosed is food $$ + small Smiley face
 
 ### 2. Hi
 
-Hi! I sent a copy of the enclosed to Greg & KAren. I thought you might enjoy them. Greg is doing great & finally finding his "[UNSURE]" - Cullible? -lible at end, beginning maybe: Cui- or Cini- or maybe starts with an "l" so lin-
+Hi! I sent a copy of the enclosed to Greg & Karen. I thought you might enjoy them. Greg is doing great & finally finding his "[UNSURE]" - Cullible? -lible at end, beginning maybe: Cui- or Cini- or maybe starts with an "l" so lin-
 
 - just can't read it and I do not know what she sent but it might be in what I have yet to write down
 
@@ -221,13 +221,13 @@ Dear Jim,
 
 Hi! Hope all is well with you - Life isn't easy. Once you can accept it then it becomes easy.
 
-Peace of mind is a great gift. Some people never find it. I have and I'm grateful. It requires hard work & gut level honesty but it is worth it. Peace of mind can not exist with the ego in charge. It comes from having God in charge of my life; accepting what I cannot change, knowing He has me where He wants me. When I am connected with God I feel secure... at peace. The connection is [unknown word, "broken"?] when my wants get in the way.
+Peace of mind is a great gift. Some people never find it. I have and I'm grateful. It requires hard work & gut level honesty but it is worth it. Peace of mind can not exist with the ego in charge. It comes from having God in charge of my life; accepting what I cannot change, knowing He has me where He wants me. When I am connected with God I feel secure... at peace. The connection is broken when my wants get in the way.
 
 The enclosed is what I wrote in June (I don't know what was enclosed) after I had been to a Quaker meeting. I broke the connection when I stopped listening to the inner noise (?). When I picked up my first drink, the direction of my life was changed.
 
-As much as I long for a rrelationship with my family, I know it will never be until alcoholism is understood.
+As much as I long for a relationship with my family, I know it will never be until alcoholism is understood.
 
-[I knew?]... those in the family who don't drink suffer from the disease because of living with alcoholics.
+Even those in the family who don't drink suffer from the disease because of living with alcoholics.
 
 God has a plan for me and today I can hear him. It is slowly revealed One Day At a Time. I believe it will be connected with the Quakers as I am now a member.
 
@@ -287,7 +287,7 @@ You have many talents and I am sure you can accomplish whatever you set out to d
 
 It is good at times to listen to those who have good, helpful advice for you... take what is good for you and listen closely to the noise within (?). It is not what others think you should do but your inner voice you should follow. It is God speaking to you and though the way you are lead may seem frightening because it is unknown...have faith. This voice will always lead you up and into the sunshine.
 
-The journey of a thousand miles begins with [unknown-word] a single step. Begin your journey with faith, hope and love for yourself. You have always been loved by me but the most important thing is to love yourself and be happy with you then you can love others unconditionally. It is my prayer for you and has always been God's will for you.
+The journey of a thousand miles begins with but a single step. Begin your journey with faith, hope and love for yourself. You have always been loved by me but the most important thing is to love yourself and be happy with you then you can love others unconditionally. It is my prayer for you and has always been God's will for you.
 
 Each day is a new beginning and an adventure. It is yours! Love always, Mom - smiley face
 
@@ -306,7 +306,7 @@ Dear Jimmy, Hi! Hope the job interview went O.K. You know me all have to find ou
 
 Growing up in an alcoholic home is the pits. My parents grew up in alcoholic homes, I did, you did
 
-I never knew peace in my life until a few years ago. I had learned the real me as a child. Alcohol & drugs made it possible for me to exist a life of quiet desperation. But in time the explosion comes - I was a (square [unknown-word]?) I followed the around. I have grown and matured into a nerd - and I love it. All humans are the same - we want to love and be loved. We feel inadequate when actually in t he eyes of God we are special. This life journey is a spiritual trip - to develop into the highest form, as near to Christ as we can. When we live by our lower selves, we lose - [unknown-word] peace, joy, contentment come from the spiritual qualities. God speaks to us all but we cannot listen when we cover up the inner voice. I have had to unlearn everything I learned. My mother put material things first. That was not comfortable for me. I know today that if I put God first, I will find peace & prosper. Those that are dancing the fastest are lost; those that are gloomy, despairing have given up hope & are lost. To lie found is to find the higher power, the inner voice that leads the way to our highest ideal.
+I never knew peace in my life until a few years ago. I had learned the real me as a child. Alcohol & drugs made it possible for me to exist a life of quiet desperation. But in time the explosion comes - I was a (square [unknown-word]?) I followed the around. I have grown and matured into a nerd - and I love it. All humans are the same - we want to love and be loved. We feel inadequate when actually in t he eyes of God we are special. This life journey is a spiritual trip - to develop into the highest form, as near to Christ as we can. When we live by our lower selves, we lose - true peace, joy, contentment come from the spiritual qualities. God speaks to us all but we cannot listen when we cover up the inner voice. I have had to unlearn everything I learned. My mother put material things first. That was not comfortable for me. I know today that if I put God first, I will find peace & prosper. Those that are dancing the fastest are lost; those that are gloomy, despairing have given up hope & are lost. To lie found is to find the higher power, the inner voice that leads the way to our highest ideal.
 
 What negative thinking goes on in the world where the priority is to have enough so we can check into a nursing home in our old age. The positive is turning one's life over to God - to follow him with hope, joy - to lie healthy until the end. If we are connected to the positive life force in t he universe we thrive, we grow, we know joy.
 
@@ -332,9 +332,9 @@ With God all things are possible. EGO is the biggest block to our growth. E easi
 
 Turning ones life & will over to God takes guts. It is not for sissies. I know.
 
-I love you. Whatever you do, wherever you are you still have my love. I hopw someday we can share our thoughts. You have every night to be angry, to hate your parents, but you can not go for [unknown-word] & grow until you rid yourself of it all. By mentalizing your pain & by crying you will be cleansed & feel so good.
+I love you. Whatever you do, wherever you are you still have my love. I hopw someday we can share our thoughts. You have every night to be angry, to hate your parents, but you can not go forward & grow until you rid yourself of it all. By mentalizing your pain & by crying you will be cleansed & feel so good.
 
-You deserve to fell good, to love yourself, to find joy. Otherwise, you will go on to repeat the past & continue along the same path of many of the fucked up `K's` & `O's` (I removed the names).
+You deserve to feel good, to love yourself, to find joy. Otherwise, you will go on to repeat the past & continue along the same path of many of the fucked up `K's` & `O's` (I removed the names).
 
 Take care, I love you, Mom - smiley face
 
@@ -424,14 +424,14 @@ Is this a letter from Bob Reid??? I guess so.
 
 > I am not sure if this is my mom's hand writing
 
-Jimmy, you're very much attracted to Bob (?). You like him because he's sincere. You doubt nothing about him. He is fascinating to you. There is a special quality that he has that you like. You're a very special person to have had your share of rejection by both friends & families. Did not score to [unknown-word] in the relationship department. Looking but nothing ever materialize. You judge through your pain. You have had a lot of pain & suffering but grew up through all of this wrong still very much confused about yourself & life. You can't pretend anymore. It's real. There are evil people and pain is the only way that you can learn. You'll be free soon. Freedom of yourself [which?] you yearned for. Many good things will happen. Sgtart enjoying people. Don't ask why or question. Just allow things to happen. A lot of good opportunities are available to you. Take them. Put the past behind you & deal with it to grow.
+Jimmy, you're very much attracted to Bob (?). You like him because he's sincere. You doubt nothing about him. He is fascinating to you. There is a special quality that he has that you like. You're a very special person to have had your share of rejection by both friends & families. Did not score too well in the relationship department. Looking but nothing ever materialize. You judge through your pain. You have had a lot of pain & suffering but grew up through all of this wrong still very much confused about yourself & life. You can't pretend anymore. It's real. There are evil people and pain is the only way that you can learn. You'll be free soon. Freedom of yourself which you yearned for. Many good things will happen. Sgtart enjoying people. Don't ask why or question. Just allow things to happen. A lot of good opportunities are available to you. Take them. Put the past behind you & deal with it to grow.
 
 `whoever wrote this wrote 3 pages - all a single paragraph - page 2 next, new paragraph`
 
-You needed a different quality of friends. You are who you long [unknown-word] (loving?) and can become nothing (?). You're you. Just be. Let go and allow the spiritual things to become a part of you. You can't pretend everything is cool. You're loved. You're a very compassionate, caring individual. A lot of love to you & you're hurting to give it to someone. Just be patient. I have much to reveal to you. You're very frustrated sexually (?). Let God. Sex can be a very beautiful thing when you're with the right person. You no longer have any ties. You're free. I have much more to reveal. This is enough for now. You're fortunate. The pain of the past relationship will ease up. Time is the key to success.
+You needed a different quality of friends. You are who you long [unknown-word] (loving? long with?) and can become nothing (?). You're you. Just be. Let go and allow the spiritual things to become a part of you. You can't pretend everything is cool. You're loved. You're a very compassionate, caring individual. A lot of love to you & you're hurting to give it to someone. Just be patient. I have much to reveal to you. You're very frustrated sexually (?). Let God. Sex can be a very beautiful thing when you're with the right person. You no longer have any ties. You're free. I have much more to reveal. This is enough for now. You're fortunate. The pain of the past relationship will ease up. Time is the key to success.
 
 _OMG - so many lame phrases - can't take much more of this..._
 
-Just breath & be still. Quietness bring forth spiritual, don't allow the evil force to come into your life. I'm with you. Your love been touched by Bob & through me you will find happiness that you have been looking for. Just be & rest in the spirit. Some days are not easy. Life is not easy. Lay down & sleep without guilt. You're a beautiful human being. Your eyes twinkle like diamonds - the star dust in your eyes. Pain, happiness, excitement, & joy came through those diamond eyes of yours time and time again. Things happen for a reason. You had to get where you are now. Through all that tremendous pain follow the spirit & not be let by other. Following the spirit is a sense of good [unknown-word] direction meaning God. There is a God in your life. Following people are not what you're about. You love leaders hip [2-unknown-words]. Good looking, charming, witty, fun-loving, talented. You're special, very special. A big change has happened already. Talk & reveal more.
+Just breath & be still. Quietness bring forth spiritual, don't allow the evil force to come into your life. I'm with you. Your love been touched by Bob & through me you will find happiness that you have been looking for. Just be & rest in the spirit. Some days are not easy. Life is not easy. Lay down & sleep without guilt. You're a beautiful human being. Your eyes twinkle like diamonds - the star dust in your eyes. Pain, happiness, excitement, & joy came through those diamond eyes of yours time and time again. Things happen for a reason. You had to get where you are now. Through all that tremendous pain follow the spirit & not be let by other. Following the spirit is a sense of good orderly direction meaning God. There is a God in your life. Following people are not what you're about. You love leaders hip qualities (?). Good looking, charming, witty, fun-loving, talented. You're special, very special. A big change has happened already. Talk & reveal more.
 
 It is I the H.S.
