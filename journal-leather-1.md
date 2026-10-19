@@ -42,7 +42,7 @@ I'm drunk...listening to Bob Dylan...
   - stagnant
   - rain that's been caught
 - I am trying to find my way
-- I am [2-unreadable-words] for trying to find my way
+- I am looking for trying to find my way
 - what extra-terrestrials love & hate about earth
 - hatred - kill
 - they're stupid
@@ -214,7 +214,7 @@ I have my laptop with me. I think I'll enter my poem first and enter all my note
 
 I have to go to my dad's place later today to give my car to my dad for repair and to meet my sister to discuss our trip to Assateague next week. I also have to buy some camping equipment - a grill face, one waffle iron type, and the standing table type. I think I tossed mine after finding they got rusty in the trunk of my car after last years' Assateague trip. Remember to clean your gear off as soon as you get back from now on. Or someday I should see if I can get the same type of equipment but made from stainless steel - I would pay extra.
 
-I'm getting tired of the journal writing. I'm going. I think I'll photograph on Kelly Drive tonight at sunset, and write a poem at the same time - AHH, my tape recorder. Have to fix it and get the [unknown-word] off of it
+I'm getting tired of the journal writing. I'm going. I think I'll photograph on Kelly Drive tonight at sunset, and write a poem at the same time - AHH, my tape recorder. Have to fix it and get the data off of it
 
 Just wrote 500 words - do that every day - reflect on the happenings of the previous day and the thoughts of the upcoming day.
 
@@ -262,7 +262,7 @@ Oh yeah, and Steph said the "we'll teach you" without looking at me. I'm really 
 
 3-21-04
 
-- 1st paragraph in `private.md`
+- 1st paragraph in `private.md` - there is no way to read what the unknown words are because there is some kind of tar or something black like that on the page
 
 It's close to 2:00. I'm sick and tired and won't be hitting the gym tonight. I have darts though. I'll take it easy and see if I hook up with JAsmine. I'd bet she's a submissive. I'm [unreadable-words] to imply [unknown-word] and see how she reacts. Then [unreadable-words] the [unreadable-word] factor - Julie - from asking her out to calling her to not really talking to her last week and not calling her this week. She's got to know I'm not interested in her anymore, although I still am I just think she needs to apologize for what she did and explain: she got f---ing wasted and beligerant that second night I asked her out. When we were downstairs, when I asked her out and she accepted, the 2 bartenders laughed I think when I asked her out & then said I want to get into professional photography but it may have been when I asked her out. When I mentioned the photo thing, she did a 180 and didn't talk to me for 10 minutes. Instead she was talking to a co-worker who started lying to her about being on Penn State's football team. The bartenders laughed again when the kid was lying about his football career. So now the 3 of us leave with Julie driving and guess who gets dropped off first? What a slap in the face. And finally George finds out the JP phone # in his phone is Julie's but he has no idea how it got there.
 
