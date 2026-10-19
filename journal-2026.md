@@ -207,7 +207,21 @@ Someone whi is awakening and manifesting great things in my life like land, a ca
 
 <ins>The person I want to be</ins>: I am rich, I am healthy, I am happy.
 
-8-13-26, starting on 8/9 I switched to 5 goals, about a 1-bedroom apartment - then I stopped everything.
+8-13-26, starting on 8/9 I switched to 5 goals. I replaced 1 & 2 and added one about a 1-bedroom apartment. I kept the remaining ones. Then I stopped everything on the 13th:
+
+1. **Goal**: I live in a 1-bedroom place, just me and Luna with parks in walking distance.
+   - **Affirmation**: I am grateful to have a place of my own with many windows for Luna.
+
+### October 19th
+
+"I saw myself fall" - this was an incredible daydream or vision I had. I hope I have the details of this written down someone, maybe one of my old laptops. I NEED TO FIND IT!
+
+How do I reverse the negative things in my life that are my fault and get positive things back in my life?
+
+- reflect & meditate
+- change my mindset
+
+I woke up tired and have been feeling bad most of the day. I have a pain or ache in my head but not a headache. Today is a wash - not getting much done.
 
 ### October ?
 

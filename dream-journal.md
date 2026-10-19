@@ -1,6 +1,6 @@
 # Dream Journal
 
-These are from the decorative leather bound journal.
+These are from the decorative leather bound journal. I added additional notes from "Dream Journal.docx"
 
 Dreams can be:
 
@@ -13,12 +13,15 @@ Dreams can be:
 
 I'm shocked I have very little dreams so far with no time. I remember writing down the time for many dreams. The time is vital to do an astrology chart analysis. I know I have more somewhere. I think they are in other notebooks which I have to dig out.
 
+By the way, I was told by someone or learn to draw up an astrology chart for the minute you woke from your dream. I think I remember only concentrating on the ascendent and the 7 inner "planets" - skip/ignore Uranus, Neptune, and Pluto, and things like Chiron and the True or North Node.
+
 ## dream entry 1
 
-10/4/18 no time listed
+10/4/18 maybe 5 AM
 
-- wood farmer - chick who is cut - frathouse - threw up - old cigarette box that was antique - on a touch football field - was I walking before - knew a player - it was muddy
-- I wrote on the cigarette box, a date I think - the owner of the box noticed I had it (cigarettes looked like playing cards deck) - asked that I put it back but were really nice - didn't notice that I wrote a date on it - wanted me to put it back in a special spot - "Fire" something where he kept valuables
+- wood farmer - chick who is cut - frathouse - threw up - old cigarette or cigar box that was antique - on a touch football field - was I walking before - knew a player - it was muddy
+- I wrote on the cigarette box, a date I think - the owner of the box noticed I had it (cigarettes looked like a deck of playing cards) - asked that I put it back but was really nice - he didn't notice that I wrote a date on it - wanted me to put it back in a special spot - "Fire" something where he kept valuables
+- Astrology: Thursday into Friday so Jupiter, 5 am – Virgo rising, Jupiter in 3rd house in Scorpio, trine Neptune and Chiron in Pisces & Neptune conjunct DC, sextile Pluto in Cap in 5th house
 
 ```
 THOUGHTS:
@@ -33,24 +36,29 @@ THOUGHTS:
 10/11/18 - no time
 
 - an octopus thing - near a river - hrs ago & can't quie remember but I may have been in the water - ???
+- Astrology: Thursday into Friday AM at 5 am so Jupiter ruled that planetary day – virgo rising, moon in Sag on cusp of Cap conjunct Jupiter both in 3rd house, sextile Pluto in Cap, also trining Chiron in Pisces and sextile the ASC
 
 ## dream entry 3
 
 11/13/18 - no time listed
 
 - Jackie Chan - some other actor - 1 kid maybe - against many - others say it's "4 against 7" - other actor leaves - now 3 against 7
+- Astrology: Tuesday into Wednesday so Mars day ruler, 5:00 AM – 0 degree Scorpio rising, Venus in Libra conjunct ASC in 12th house, Uranus conjunct DC in 6th, Sun in Scorpio in 1st house, Mars late degree Aqua in 4th, Mars trine Venus and ASC, square the Sun in Scorpio and Jupiter in Sag in 2nd, sextile Uranus
+- Thoughts: I’m the 4th, I took martial arts and was very agile when I was younger so I’m Jackie Chan and I must be the kid as well
 
 ## dream entry 4
 
-11/27/18 - not ime listed
+11/27/18 - no time listed, 2 wks later
 
 - Sandy M. but it wasn't her - she had to do something - like open up a lab but I visualized it was a smimming pool like at Drexel - before that I was in a house - asian couple - then I was on the street - a woman was running with her kid who kept running - I tried to shoot at a neighbor's house but realized I can't just walk into it to do it - they were cleaning dishes when I got back
+- Astrology: Tues into Wed so Mars day ruler, 5:00 AM – Scorpio rising, Mercury, Jupiter Sun in 1st house, Mars in Pisces conjunct Neptune in 4th, Mars square, Mercury, Sun and Jupiter, sextile Saturn in Cap in 2nd house, trine ASC
 
 ## dream entry 5
 
 11/12/19 - no time listed
 
-Borden condensed milk - how to get ahead in life - Wawa sugar and coffee - no, in an office with co-worker and all these little self-help packets were near my desk + a co-worker was there, friendly - more but can;t remember - wawa sugar packets - said I just use cream - said we can keep the sugar for other people who use them - wonder if they will go bad if too long
+- Borden condensed milk - how to get ahead in life - Wawa sugar and coffee - no, in an office with co-worker and all these little self-help packets were near my desk + a co-worker was there, friendly - more but can;t remember - wawa sugar packets - said I just use cream - said we can keep the sugar for other people who use them - wonder if they will go bad if too long
+- Astrology: Sat into Sunday so Saturn day ruler, 5:00 AM – Sag rising, Jupiter in Sag conjunct ASC in 12th, Saturn Cap in in 1st Placidus or 2nd Whole sign, Saturn conjunct Mercury & Pluto in Cap, square MC in Libra, Square Mars and Moon in Aries, sextile Neptune in Pisces in 3rd
 
 ```
 THOUGHTS:
@@ -71,6 +79,7 @@ something right or am I missing something "sweet"?
 3/4/19 - no time listed
 
 - in yard - other people in neighbors yard - 3 women - I'm eventually naked sitting on steps embarrassed I got caught - small rag covering me - weird guy comes into yard - can't get out - breaks fence partly - then democrats flat guy, just a nose, eye, ear and mouth on a rhumba - he deserves rights, deserves life
+- Astrology: Monday into Tuesday so Moon day ruler, 5 am – ASC in Aqua, Moon in Aqua in 1st house, square Mars in Taurus, sextile Jupiter in Sag, square MC
 
 ```
 THOUGHTS:
@@ -82,7 +91,8 @@ THOUGHTS:
 
 4/11/19 - no time listed
 
-- on a friends step with a coffeee machine and I spilled the water - no, it overflowed because something was not right - made a mess
+- on a friends (or front) step with a coffeee machine and I spilled the water - no, it overflowed because something was not right - made a mess
+- Astrology: Thursday into Friday so Jupiter day ruler, 5 am – Pisces rising, Jupiter in Sag in 10th conjunct MC, trine Sun in 1st in Aries, opposed Moon in Cancer in 4th, square Mercury & Venus in Pisces in 1st, trine Uranus in Taurus, square Neptune in Pisces in 1st conjunct ASC (?), square Chiron in 1st in Aries
 
 ## dream entry 9
 
@@ -90,23 +100,45 @@ THOUGHTS:
 
 - tiger for sale - after storm disaster or something - coming into my place by the back door, locked it - didn't want any part of it - 2nd floor fire escape type door - town almost deserted - storm or something - I know a few women staying behind like me - guy still trying to sell it - it's been up for a [some-word] 5 days or times - blond hair guy - tiger was still on a couch near a window - plexiglass but still on leash, was in my place - worried about Luna - talking to 3-4 women - was in different house, 1st floor I think
 
+different notes from a docx file:
+
+- There is a storm or something – town is being evacuated – I stay behind – town is deserted mostly
+- I’m in a house, 1st floor with 3 or 4 women – they are staying too
+- I’m in an apartment like my Norwood one near the post office – 2nd floor
+- someone has a tiger for sale – I quick close and lock the door to the fire escape
+- blond guy says the tiger has been up for adoption five times or for 5 days – I say no and think of Luna – but then I look another guy who is holding the leash has let the tigetr in thru a broken plexiglass window or something and he is sitting on a couch – still on the leash - friendly
+- I say not interested – didn’t want any part of it – think he leaves – worried for Luna
+- Astrology: Friday into Saturday so Venus day ruler, 5 am – Libra rising, Venus in 2nd in Scorpio conjunct Mercury, Mars in Libra in 1st, sextile the Moon in Virgo, sextile Saturn in Cap, trine Neptune in Pisces, sextile Pluto in Cap,
+- Thoughts: the calico cat I saw attack another cat and near the window Luna was in – afraid for Luna’s well-being
+
 ## dream entry 10
 
 11/14/19 - no time listed
 
 - Dave L. - prescriptions - plants - 1 person was arguing with pharmacist who was giving man hard time (or [some-word] someone I was with) - I started cursing - saw pictures of the poisonous plant - woman from gas station - buying news papers - lobelia plant
 
+From docx file
+
+- Dave L., prescriptions, plants, poisonous, argument with pharmacist who was giving me a hard time, or actually someone I was with, I started cursing, saw pictures of the plant – woman from gas station buying newspaper - Lobelia
+- Astrology: Thurs into Fri so Jupiter day ruler, 5:00 AM – early degree Scorpio rising with Mars in 12th in late Libra conjunct the ASC, Mercury & Sun in Scorpio in 1st, Jupiter in Sag in 2nd, sextile ASC, Mars and Neptune in Pisces 5th, conjunct Venus in Sag, opposite Moon in Gemini in 8th, square Chiron in Aries
+
 ## dream entry 11
 
 11/20/19 - no time listed
 
 - pasta party? preteen baseball - I was there, shirtless cut end - NOT SURE: "tan is test" - or - "tan stick", not sure - lots of pasta boxes in a rack, orderly, kept seeing the same kid, wtisting of pasta - then I'm big standing behind of with other kids - can't see the kitchen area, standing and eating - 1 strand sticks to cabinet and I use black fork to pull it off to eat, dark spots on cabinet that show through the strand making parts of it dark
+- Astrology: Wed into Thurs so Mercury day ruler, 5:00 AM - early degree Scorpio rising with Mars in 12th in late scorpio conjunct the ASC, Mercury & Sun in Scorpio in 1st, sSun in Scorpio in 1st, Mercury in Scorpio in 1st conjuct the ASC, sextile Saturn in Cap in 3rd, opposite Uranus in Taurus in 6th or 7th conjunct the DC, trine Neptune in Pisces in 5th and N. Node in Cancer in 9th
 
 ## dream entry 12
 
 12-19-19 4:45-5:15, call it 5:00 - first time available
 
 - C major - Y nationals - A Harmonic, melodic minor in bold, H2, then realize mistakes [copying?] to paragraph - plane, go Wed or Thurs, thet [some word] getting to airport, Wed night or Thurs AM (like today)
+
+From docs file:
+
+- C major vs A harmonic & melodic minors – bold and H2 but put in a paragraph so I know I need to fix the html tag - “Y” nationals – flying down Wednesday night vs Thursday morning, just like the time of my dream which is interesting – thinking about getting someone to get me to the airport – could see an airport but almost from a birds eye view
+- Astrology: Wed into Thurs so Mercury day ruler, 4:45-5:15 AM – 4:45 AM has Scorpio rising with Mars in late Scorpio conjunct the ASC in the 12th house – Merc in 1st house Sag but Sun in 2nd Sag, Jupiter, Saturn, Pluto Venus in 2nd in Cap, Moon in Virgo in 10th – 5:15 AM – early Sag ASC, now Sun in 1st, same for other planets and Neptune in 4th in Pisces conjunct the IC, Uranus in 5th in Taurus
 
 Astro
 
@@ -138,6 +170,12 @@ black pit with white belly sounds like my dog Buddy
 Astro:
 
 - Sun in Sco, Moon in Gem, AC, Mercury & Venus in Lib, Mars in Ari, Jupiter, Saturn, Pluto in Cap, Uranus in Tau, Neptune in Pis, MH in Can
+
+from docs file:
+
+- my car not being able to stop at a light (2 or more x’s) at night, possibly wet roads, maybe another car or two, would go thru light even with brake on, did a # of 360’s, looked like Balt. Pike & bishop hill, then maybe oak, not sure, pulled into a gas station for help maybe, punk kids were blocking the pumps or something, then I no longer had a car but a bike and the tire was flat, kids still in my way, woman who worked there came out and was yelling at the kids, I needed a ride, thought of my Dad but then “No, not him”
+- Astrology: Wed > Thurs, so day of Mercury & Hour of Mercury, Capricorn rising, mercury in 2nd house of Aquarius, trine Moon in late Libra in 9th or 10th house, semisquare ASC, sextile Uranus in 3rd/5th of Taurus, semisextile Saturn in Cap, MARS, jupiter & Pluto conjunct ASC,
+- Thoughts: my life out of control? Had a lot of problems, a woman helped but my Dad can not help, kids blocking me – was this a past thing given drawing the 2 of cups after meditation? 6 of cups: memories of the past, reflections on childhood, happiness, enjoyment but things have vanished – Mercury no good here – thoughts, ideas, logic, reasoning??? My mind is either NO help or IS the problem – new knowledge,
 
 ## dream entry 16
 
