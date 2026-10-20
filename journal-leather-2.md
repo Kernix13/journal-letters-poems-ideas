@@ -16,8 +16,6 @@ Booklet 3:
 
 - just a single entry on the path of Tau on page 1, rest empty
 
-> I need to go thru booklets 1 & 2 more carefully because I have some important/good things in there I would like to share
-
 ## Booklet 1 ✅
 
 - starts on 4-30-18
@@ -64,12 +62,20 @@ Then for the last few pages until 3/29 it's mostly a question I asked before my 
 - 3/4/20 Q: "What is my purpose in life?" Card: Knight of Wands
 - 3/5/20 Q: "Am I good?" Card: Magician
 - 3/6/20 Q: "What is spirituality?" Card: Temperance
+
+> I have to ask better questions. I have notes from a course I took but I'm not getting much except for maybe Temperance, maybe 3 of Pentacles. I need to get my Kaballistic Tarot book here.
+
 - 3/7/20 Q: "How do I fix myself inside, how do I change my mind?" Card: 3 of Pentacles
+  - Mars in Capricorn denotes taking action
 - 3/8/20 Q: "How do I get my mind healthy?" Card: King of Swords
 - 3/9/20 Q: "4 elements...(?)... to fix my mind?" Card: Magician
 - 3/10/20 Q: "How do I use my will power to control my thoughts & emotions?" Card: 3 of Pentacles
+  - Mars in Capricorn denotes taking action, get to work
 - 3/11/20 Q: "What is a practical way or 1st step to develop my will power to change my negative thoughts and emotions into a higher positive viration?" Card: 6 of Cups
-- 3/14/20 Q: "Since I do not understand the Ace of Cups, give me another cards that explains or tell me what else should I focus on?" Card: accidentally grabbed 2 cards - Magician, 8 of Pentacles
+
+> So many questions involving my mind. I am trying to find something in the card given the question, but I'm not getting anything.
+
+- 3/14/20 Q: "Since I do not understand the Ace of Cups, give me another cards that explains or tell me what else should I focus on?" Card: accidentally grabbed 2 cards - Magician, 8 of Pentacles - huh?
 - 3/18/20 Q: "Do I start monetizing my websites?" Card: 4 of Wands
 - 3/21/20 Q: "What do I need to do to be able to handle more from my higher self?" Card: 4 of Cups
 - 3/22/20 Q: "What is the one thing holding me back from conversing with my higher self?" Card: Prince of Wands
