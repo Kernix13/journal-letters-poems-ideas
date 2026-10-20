@@ -227,6 +227,8 @@ I woke up tired and have been feeling bad most of the day. I have a pain or ache
 
 Finished up my journal entries - added my tarot draws but skipped some of them. It's a beautiful fall day - sunny and a little chilly/ I'm at the forestry center and there are signs showing different people's photography so maybe there is an art show soon.
 
+I texted Tim hours ago if the people moved out on the 15th (they were supposed to move out on the 1st). That was hours ago and no reply. I'm in a very negative space right now. I have to get my own place! And I really have no idea what to do with my life. I think either my negativity towards my present living situation, or the negativity energy from the freeloading lazy bun I live with is affecting me - or both. I'm lost right now.
+
 ### October ?
 
 <br>
