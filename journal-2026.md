@@ -221,7 +221,11 @@ How do I reverse the negative things in my life that are my fault and get positi
 - reflect & meditate
 - change my mindset
 
-I woke up tired and have been feeling bad most of the day. I have a pain or ache in my head but not a headache. Today is a wash - not getting much done.
+I woke up tired and have been feeling bad most of the day. I have a pain or ache in my head but not a headache. Today is a wash - not getting much done. I'm not sure what is going on with the apartment. I suppose I need to text Tim or knock on his door.
+
+### October 20th
+
+Finished up my journal entries - added my tarot draws but skipped some of them. It's a beautiful fall day - sunny and a little chilly/ I'm at the forestry center and there are signs showing different people's photography so maybe there is an art show soon.
 
 ### October ?
 
