@@ -16,6 +16,21 @@ Booklet 3:
 
 - just a single entry on the path of Tau on page 1, rest empty
 
+SINGLE CARD TAROT SPREAD: Yes/No – Final Outcome/Result – you draw one card for your question whatever card comes up is your answer – it results is a yes / no answer depending on if it is a positive or negative card – but it gives additional insight and information – YES + or NO +
+
+- it’s the quickest reading and useful when you need a quick read.
+- Based on how I did it was wrong. I was analyzing the card in relation to my question. But I think I also confused the single card draw with the idea of meditating on the card. I need to revisit what I was doing and if I will continue in the future.
+- I think 1st impression of the card should be used rather than the classic meaning of the card
+
+Here is what I found searching online:
+
+- You need an intention, even if you don’t have a specific question
+- Ask a question | Pull a card | Answer the question
+- The card offers a reflection, a piece of wisdom, or a guiding theme for your current situation. It can be used as a daily practice, a moment of quiet reflection, or a starting point for deeper self-inquiry
+- The Single Card Tarot Reading offers a simple, intuitive way to tune into what matters at this moment.
+- You'll be drawn to one card that mirrors your current energy or question — **_pulled from the Major Arcana_**, the soul-level archetypes of growth and life lessons.
+- Upright or reversed, your card reflects your theme right now and offers grounded insight you can act on. Ideal for moments when you want a calm check-in, a sign, or a spark of direction
+
 ## Booklet 1 ✅
 
 - starts on 4-30-18
