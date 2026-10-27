@@ -16,7 +16,7 @@ Booklet 3:
 
 - just a single entry on the path of Tau on page 1, rest empty
 
-SINGLE CARD TAROT SPREAD: Yes/No – Final Outcome/Result – you draw one card for your question whatever card comes up is your answer – it results is a yes / no answer depending on if it is a positive or negative card – but it gives additional insight and information – YES + or NO +
+SINGLE CARD TAROT SPREAD: Yes/No – Final Outcome/Result – you draw one card for your question whatever card comes up is your answer – it results is a yes / no answer depending on if it is a positive or negative card – but it gives additional insight and information – YES + additional info or NO + additional info
 
 - it’s the quickest reading and useful when you need a quick read.
 - Based on how I did it was wrong. I was analyzing the card in relation to my question. But I think I also confused the single card draw with the idea of meditating on the card. I need to revisit what I was doing and if I will continue in the future.
